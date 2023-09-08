@@ -1,4 +1,4 @@
-### Hi there 👋
+Soy licenciada en Educación Física, bailarina y practicante de Yoga.### Hi there 👋
 
 <!--
 **lina-zz22/lina-zz22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
